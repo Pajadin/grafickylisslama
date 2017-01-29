@@ -1,0 +1,2 @@
+# grafickylisslama
+grafickylisslama.cz
